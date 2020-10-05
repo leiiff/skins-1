@@ -34,3 +34,6 @@
 
 # [mathi ensalada edit](http://www.mediafire.com/file/m1mdry8qcxpsjtu/mathi+ensalada+edit.osk/file)
 ![](https://osu.ppy.sh/ss/15600258/a66c)
+
+# [vaxei edit](http://www.mediafire.com/file/li2t84ntm3br74a/_leif.osk/file)
+![](https://osu.ppy.sh/ss/15635829/fe7e)
